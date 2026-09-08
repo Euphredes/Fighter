@@ -17,7 +17,7 @@ Location: Philadelphia, PA.
            -------- 
 
 Introduction                         - 
-Protection                           II. 
-Love                                 IX. 
-Trials                               XVIII. 
-Loyalty                              XXXIV. 
+Walkaway                             II. 
+Headlock                             IX. 
+Brawl                                XVIII. 
+Wall                                 XXXIV. 
