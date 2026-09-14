@@ -96,6 +96,27 @@ Spiritually
 
            * * * 
 
+
+
+
+
+
+           Ireland 
+
+Why not feel like a coward now? to make 
+it to tomorrow. 
+
+Anytime, except once, someone gets 
+aggressive with me, I never feel any 
+desire to fight. That is, to kill. I'm 
+left empty, available for a case of 
+studying nerves. 
+
+
+
+
+
+
            ***** 
             *** 
              * 
