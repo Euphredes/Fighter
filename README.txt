@@ -11,35 +11,13 @@ Licensing: Content in this text file
            Commons Attribution 4.0 
            International license. 
 Author: Nick Morris. 
-Release: Saturday, September 12th 2026. 
-Location: Philadelphia, PA. 
+Age: 33 Years Old. 
+Release: Tuesday, September 15th 2026. 
+Location: Camden, NJ. 
 
            ------- 
            Fighter 
            ------- 
-
-           Claimer 
-
-A thought happens when .it. wants to, 
-not when I want it. The closest 
-experience I'm abused by daily, 
-thoughts, are a stranger. I do not 
-know the who of my thinking. This 
-strikes fear into my authenticity. 
-I'll use silence, chanting, or humming 
-to cope: to overload my mind until some 
-reaction within me, that is strong 
-enough, breaks thorugh my self-imposed 
-monotony. That reaction is a choice 
-for me to make or not. I feel like a 
-gambler with a stranger, who I've 
-been closest to, gambling over my 
-life and death. This monster is the 
-famous, owld .it. 
-
-When a person dies, all that one goes 
-to the grave with is just one's own 
-stories: that is the person's bounty. 
 
            Contents 
 
@@ -52,55 +30,6 @@ Wall
            Introduction 
            ------------ 
 
-           Review 
-
-What is it? 
-Who is it for? 
-Where has it been? 
-Where is it going? 
-How is it done in two parts? 
-
-           Storyline 
-
-Opponent 
- Maslow's Pyramid 
-Game 
- Heist 
-Monster 
- Penal Colony 
-Outward 
- Physical Adventure 
-Inward 
- Obstacle Course 
-
-           Approach 
-
-Problem 
- Slitherlink Knapsack 
-Sets 
- Destinations 
- Traps 
- Items 
- Storages 
-Solver 
- Greedy 
-
-           Responsibilities 
-
-Mentally 
- Silence 
-Physically 
- Momentum 
-Spiritually 
- Focus 
-
-           * * * 
-
-
-
-
-
-
            Ireland 
 
 Why not feel like a coward now? to make 
@@ -112,10 +41,77 @@ desire to fight. That is, to kill. I'm
 left empty, available for a case of 
 studying nerves. 
 
+           Walkaway 
+           -------- 
 
+           Space 
 
+Space lets money happen. Space lets 
+people happen. Respect a person's 
+space. People naturally let me 
+walkaway. I know the various 
+ways to establish: all set. 
 
+           Headlock 
+           -------- 
 
+           Bleeding 
+
+Now that I've established I'm 
+evasive, there is the case of a 
+problem. Some person wants to 
+bitch me into feeling underly. I 
+continue the walkaway, allowing 
+for threats to continue and even 
+violence. As this problem slaps 
+me up the face and then punches 
+me, the problem gets loose to 
+prove I really am a bitch. That 
+underestimated moment is when I 
+pit my elbowpit around the 
+problem's throat. One-arm hug 
+the problem's neck like a kid 
+climbing up for a piggyback. 
+Lean into falling on the ground. 
+I have the time to find a 
+headlock. Underly, well, I am 
+not the stepson of an abusive 
+stepfather in this. 
+
+           Brawl 
+           ----- 
+
+           Elbow 
+
+In the case of planning to assault 
+a problem, a headlock is a poor choice. 
+First, I will be a sucker for coming 
+from behind. Second, the shock of this 
+untired problem will send my back into 
+getting smashed onto something. I wait 
+for the problem to sit. Reach the left 
+or right side, approach from behind. 
+I am no longer a sucker because I can 
+be seen by the problem. Like a hammer, 
+one hand of mine will not stop 
+striking the problem's head like it is 
+a nail to break into pieces. When I 
+punch, only my elbow matters. Like at 
+bat in baseball, aim my elbow at the 
+pitch to better connect the bat to the 
+ball. My fist is in the way of my 
+elbow reaching the problem's head. 
+
+           Wall 
+           ---- 
+
+           Underly 
+
+Animate objects are more valuable than 
+inanimate objects. A wall is the only 
+opponent worth treating underly. and 
+it never falls or fights back. My 
+knuckles develop the artist's callus. 
 
            ***** 
             *** 
