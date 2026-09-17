@@ -8,6 +8,9 @@
            AN ALEXANDRIAN SERVANT 
 
 
+           A BOOK FOR FATHERS 
+
+
            Publishing 
 
 Licensing: Content in this text file 
@@ -16,7 +19,7 @@ Licensing: Content in this text file
            International license. 
 Author: Nick Morris. 
 Age: 33 Years Old. 
-Release: Wednesday, September 16th 2026. 
+Release: Thursday, September 17th 2026. 
 Location: Cherry Hill, NJ. 
 
            ------- 
@@ -119,7 +122,7 @@ knuckles develop the artist's callus.
 
            Floor 
 
-Mr. Cole, any chicken farmer knows: 
+Game Warden, any chicken farmer knows: 
 chalkline. That makes for an obedient 
 chicken. Draw the storyline, a chicken 
 follows the floorflow. 
